@@ -112,7 +112,7 @@ Sambalpur**.
 ## Author
 
 **Achyuth Athreya Yelisetty**\
-LinkedIn: \[Add your LinkedIn profile URL here\]
+LinkedIn: linkedin.com/in/achyuth-yelisetty
 
 ------------------------------------------------------------------------
 
